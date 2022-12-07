@@ -29,8 +29,8 @@
  *
  * Jika ada masalah atau hal lain bisa hubungi kami disini:
  * Email: mr.familia13@gmail.com
- * Phone / WA: 081320170984
- * URI WA: https://wa.me/6281320170984
+ * Phone / WA: 0888268184147
+ * URI WA: https://wa.me/+6288268184147
  *
  *
  * Terimakasih telah menggunakan dengan bijak!
